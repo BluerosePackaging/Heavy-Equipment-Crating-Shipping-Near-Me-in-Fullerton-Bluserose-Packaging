@@ -25,7 +25,7 @@ Businesses that [**buy heavy equipment crating & shipping services**](https://ww
 
 ## Crates Engineered for Industrial Performance
 
-Heavy equipment can weigh several hundred pounds—or several tons. The crate surrounding that equipment must be capable of supporting the load while maintaining its structural integrity through repeated handling, loading, and transportation.
+Heavy equipment can weigh several hundred pounds or several tons. The crate surrounding that equipment must be capable of supporting the load while maintaining its structural integrity through repeated handling, loading, and transportation.
 
 Every heavy-duty crate is manufactured using carefully selected lumber and reinforced structural components that provide dependable support under demanding shipping conditions. Depending on the shipment, additional bracing, reinforced bases, and heavy-duty fastening systems may be incorporated to increase overall strength.
 
